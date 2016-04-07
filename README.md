@@ -1,2 +1,2 @@
 # Seminars
-Whatever planned to hold with far eastern geneticists
+Whatever planned to hold with fareastern geneticists
