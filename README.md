@@ -1,2 +1,2 @@
 # Seminars
-Whatever planned to hold with fareastern geneticists since April, 2016
+Whatever planned to hold with russian fareastern geneticists since April, 2016
